@@ -1,1 +1,0 @@
-# shineju.github.io
